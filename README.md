@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi, I'm Khanh! 😄
 
 <h2>👨‍💻 Information Technology Projects:</h2>
 
